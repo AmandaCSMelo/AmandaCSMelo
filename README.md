@@ -1,4 +1,5 @@
-- Tecnóloga em Gestão Empresarial pela FATEC. Estagiei na Petrobras, onde acompanhava os processos de faturamento, arquivamento de documentos, verificação de prazo fiscal, entre outras funções.
+- Tecnóloga em Gestão Empresarial pela FATEC. 
+- Estagiei na Petrobras, onde acompanhava os processos de faturamento, arquivamento de documentos, verificação de prazo fiscal, entre outras funções.
 - Na Prefeitura de Praia Grande - CER, recepcionava os pacientes, agendava exames e consultas, como também, permanência na administração, atendendo telefonemas, fazendo memorandos e aberturas das agendas.
 - Tenho experiência com atendimento ao cliente, recepção e rotinas administrativas.
 Gostaria de aprimorar meu conhecimento e contribuir com a empresa que me proporcionar uma oportunidade.
